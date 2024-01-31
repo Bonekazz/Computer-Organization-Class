@@ -1,1 +1,1 @@
-## current lecture: 01 at 
+## current lecture: 01 at 40:04
